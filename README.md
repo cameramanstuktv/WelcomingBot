@@ -1,1 +1,1 @@
-# WelcomingBot
+Welcome to the group!
